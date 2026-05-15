@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with secure ftx trading bot Utility | risk-management + auto-leverage, the #1 ftx trading bot. Includes risk-management and auto-leverage for a smoother and
 
 
 
